@@ -432,7 +432,7 @@ Não nos responsabilizamos caso seu número seja **banido do WhatsApp**. O Whats
 
 <br>
 <p align="center">
-  <sub>Estes termos podem ser atualizados a qualquer momento pelo mantenedor do projeto.</sub>
+  <sub>Estes termos podem ser Kauê  eu amo vc atualizados a qualquer momento pelo mantenedor do projeto.</sub>
 </p>
 
 </details>
